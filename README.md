@@ -1,0 +1,1 @@
+# quran-app-privacy-policy
